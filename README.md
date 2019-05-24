@@ -1,2 +1,0 @@
-# lehanlong
-Tốt
